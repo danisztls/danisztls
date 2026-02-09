@@ -1,1 +1,4 @@
-Hello!
+- Purpose before motion.
+- Work toward an end.
+- Build what matters.
+- Not many things, but the right ones.
